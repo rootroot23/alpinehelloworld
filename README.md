@@ -1,3 +1,3 @@
 bonjour
 je suis comptant
-et pour l'equipe
+et pour l'equip
